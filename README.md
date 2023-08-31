@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @itspeteg
-- 📫 How to reach me +523323631866 WhatsApp or Telegram devopslyfe@gmail.com
+- 📫 How to reach me Telegram @p_gil pete@gnosis.builders
 
 <!---
 itspeteg/itspeteg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
